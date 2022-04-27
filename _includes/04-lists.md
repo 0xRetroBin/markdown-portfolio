@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+
+- Capture The Flag
+- Watching Anime
+- Study, Eat, Sleep and Repeat
